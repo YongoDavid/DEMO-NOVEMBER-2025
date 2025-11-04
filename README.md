@@ -6,3 +6,4 @@ TECHNOLOGY, COMPUTERS AND CODE IS THE CLOSEST THING TO MAGIC!
 New week, new day, same grind.
 
 O4 NOV
+Noew day, same grind.
