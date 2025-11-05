@@ -10,3 +10,4 @@ New day, same grind.
 
 05 NOV
 New day, same grind.
+Still working on phase2 of AIxEcom, i have two more demos that have been build already.
