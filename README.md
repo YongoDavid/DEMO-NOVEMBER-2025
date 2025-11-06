@@ -14,3 +14,4 @@ Still working on phase2 of AIxEcom, i have two more demos that have been build a
 I will keep experimenting on the right LM to use for phase 2.
 
 06 NOV
+New day, moew grind.
