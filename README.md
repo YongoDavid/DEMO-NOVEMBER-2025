@@ -12,3 +12,5 @@ New day, same grind.
 New day, same grind.
 Still working on phase2 of AIxEcom, i have two more demos that have been build already.
 I will keep experimenting on the right LM to use for phase 2.
+
+06 NOV
