@@ -15,3 +15,5 @@ I will keep experimenting on the right LM to use for phase 2.
 
 06 NOV
 New day, moew grind.
+
+07 NOV
