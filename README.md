@@ -17,6 +17,7 @@ I will keep experimenting on the right LM to use for phase 2.
 New day, moew grind.
 
 07 NOV
-Crazy wee soooo far but we'll keep pushing regardless.
+Crazy weeK soooo far but we'll keep pushing regardless.
 
 08 NOV
+its a new week, be better everyday.
