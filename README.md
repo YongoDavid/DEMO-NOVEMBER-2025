@@ -21,3 +21,5 @@ Crazy weeK soooo far but we'll keep pushing regardless.
 
 08 NOV
 its a new week, be better everyday.
+
+09 NOV
