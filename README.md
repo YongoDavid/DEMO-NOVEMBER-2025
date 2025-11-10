@@ -23,3 +23,4 @@ Crazy weeK soooo far but we'll keep pushing regardless.
 its a new week, be better everyday.
 
 09 NOV
+New week, new day, more grind.
