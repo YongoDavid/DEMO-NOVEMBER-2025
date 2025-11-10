@@ -18,3 +18,5 @@ New day, moew grind.
 
 07 NOV
 Crazy wee soooo far but we'll keep pushing regardless.
+
+08 NOV
