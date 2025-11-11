@@ -26,3 +26,4 @@ its a new week, be better everyday.
 New week, new day, more grind.
 
 10 NOV
+New day same grind.
