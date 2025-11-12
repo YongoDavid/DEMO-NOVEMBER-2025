@@ -30,3 +30,4 @@ New day same grind.
 
 12 NOV
 New day, same grind.
+Another day working with Next.js
