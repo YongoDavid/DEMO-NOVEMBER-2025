@@ -34,3 +34,4 @@ Another day working with Next.js
 
 13 NOV
 New day, same grind.
+Another day working on Next.js
