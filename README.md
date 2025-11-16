@@ -40,3 +40,4 @@ Another day working on Next.js
 New day, same grind
 
 16 NOV
+Sunday chill day, putting in light work.
