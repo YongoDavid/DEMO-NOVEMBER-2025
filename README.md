@@ -41,3 +41,5 @@ New day, same grind
 
 16 NOV
 Sunday chill day, putting in light work.
+
+17 NOV
