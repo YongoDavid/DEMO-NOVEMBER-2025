@@ -50,3 +50,4 @@ New day, same grind.
 Working on Next.
 
 19 NOV
+New day, more Next.js
