@@ -63,3 +63,6 @@ New day, same grind.
 
 27 NOV
 New day, setting up DEC code base
+
+28 NOV
+New day, more code.
