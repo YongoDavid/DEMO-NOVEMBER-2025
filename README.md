@@ -66,3 +66,4 @@ New day, setting up DEC code base
 
 28 NOV
 New day, more code.
+Done cloneing DEC, now finishing up Vendoza mockup
