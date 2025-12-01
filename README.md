@@ -10,17 +10,17 @@ New day, same grind.
 
 05 NOV
 New day, same grind.
-Still working on phase2 of AIxEcom, i have two more demos that have been build already.
+Still working on phase2 of AIxEcom, i have two more demos that have been built already.
 I will keep experimenting on the right LM to use for phase 2.
 
 06 NOV
-New day, moew grind.
+New day, more grind.
 
 07 NOV
 Crazy weeK soooo far but we'll keep pushing regardless.
 
 08 NOV
-its a new week, be better everyday.
+its a new week, be better each.
 
 09 NOV
 New week, new day, more grind.
